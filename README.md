@@ -61,6 +61,22 @@ Educational support: When a platform lacks a solid academic format, how can it e
 When a company competes in a competitive market, continually improving and innovating is the best way to stay on top of competitors. Including these additions to the Webull platform would allow for the expansion and growth of the company exponentially.
 Lastly, the platform's most positive and impactful implications will require continual investment in overall software and application. From Robo advisors to a lending protocol for funds, all necessary improvements will be made through technological innovation.
 
+Works Cited Resources:
+
+
+https://en.wikipedia.org/wiki/Webull#:~:text=On%20May%2024%2C%202017%2C%20Webull,app%20for%20iOS%20and%20Android.
+
+https://productmint.com/webull-business-model-how-does-webull-make-money/
+
+https://youngandtheinvested.com/how-does-webull-make-money/#:~:text=Webull%20is%20funded%20primarily%20by,sending%20its%20trades%20to%20it.
+
+https://app.dealroom.co/companies/fumi_technology
+
+https://www.facebook.com/business/success/webull
+
+https://www.marketingcharts.com/featured-30401
+
+https://www.forbes.com/sites/forbesfinancecouncil/2022/11/01/12-fintech-trends-poised-to-change-consumer-financial-transactions/?sh=6bfd92ec106a
 
 
 
